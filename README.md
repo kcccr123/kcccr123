@@ -1,3 +1,3 @@
 ## 🫡
 
-### Website: https://kcccr123.dev/
+https://kcccr123.dev/
